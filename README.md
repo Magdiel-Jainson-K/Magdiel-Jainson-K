@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Magdiel-Jainson-K
 - 👀 I’m interested in "Coding"
-- 🌱 I’m currently learning "1st year in VIT"
+- 🌱 I’m currently learning "2nd year in VIT"
 - 📫 Reach me INSTA:itzmehmagi
 - 😄 Pronouns: He
 - ⚡ Type: Take it easy
