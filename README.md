@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning "2nd year in VIT"
 - 📫 Reach me INSTA:itzmehmagi
 - 😄 Pronouns: He
-- ⚡ Type: Take it easy
+- ⚡ Type: Take it easy..
 
 <!---
 Magdiel-Jainson-K/Magdiel-Jainson-K is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
